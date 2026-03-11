@@ -1,3 +1,4 @@
+<div align="center">
 # WELCOME.
 
 <img width="640" height="64" alt="image" src="https://github.com/user-attachments/assets/753df949-97da-4a49-935b-fe39cff13ebf" />
@@ -25,3 +26,4 @@
 • Some of my kins (FOR FUN): Killua (HxH), Tecchou (BSD), Shadow (STH), Medkit (P!), Azure (FS), Sebastian (PRSR), Pest (RGTVR)
 
 • Some of my favs: Blade (HSR), Yi Xi (SynthV), Shadow (STH), Kurapika (HxH), Griefer (BT), Pest (RGTVR), Subspace (P!) . . .
+</div>
