@@ -14,6 +14,8 @@ I might be editing characters or offtab at times, so don't hesitate to whisper t
 
 
   I'm a multifandom and multishipper guy, open to any type of discussion and ship. My main interest though is Roblox!
+
+  Basic DNIS (Homophobes, Transphobes, Racists, Zoos, Pedos, Ableist etc.) + ageplayers and -15 yo
   </div>
 
 • I'm mostly into: Forsaken, Regretevator, Phighting, Grace, Block tales, Animes, Music, Birds, Animated shows, +
@@ -25,3 +27,16 @@ I might be editing characters or offtab at times, so don't hesitate to whisper t
 • Some of my kins (FOR FUN): Killua (HxH), Tecchou (BSD), Shadow (STH), Medkit (P!), Azure (FS), Sebastian (PRSR), Pest (RGTVR)
 
 • Some of my favs: Blade (HSR), Yi Xi (SynthV), Shadow (STH), Kurapika (HxH), Griefer (BT), Pest (RGTVR), Subspace (P!) . . .
+
+
+<div align="center">
+<img width="640" height="64" alt="image" src="https://github.com/user-attachments/assets/5a440649-684b-4568-898b-b8e0b28f06a0" />
+
+If you wish to talk with me more often, I don't mind anyone adding me on discord! (smilli_hxp3)
+
+And check out my strawpage for more infos (link on profile)!
+
+Sorry if i'm a bit awkward at times, I don't always do well in social situations </3
+
+
+
