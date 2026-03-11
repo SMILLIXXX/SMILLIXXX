@@ -38,9 +38,10 @@ If you wish to talk with me more often, I don't mind anyone adding me on discord
 And check out my strawpage for more infos (link on profile)!
 
 Sorry if i'm a bit awkward at times, I don't always do well in social situations </3
-</div>
 
 
 
 <img width="55" height="55" alt="image" src="https://github.com/user-attachments/assets/b142bb09-7bd9-42bd-9598-dda71cbc2baf" />        <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/a641d3b0-7022-4ffb-a129-21a1e51c878a" />        <img width="55" height="55" alt="image" src="https://github.com/user-attachments/assets/b142bb09-7bd9-42bd-9598-dda71cbc2baf" />         <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/a641d3b0-7022-4ffb-a129-21a1e51c878a" />          <img width="55" height="55" alt="image" src="https://github.com/user-attachments/assets/b142bb09-7bd9-42bd-9598-dda71cbc2baf" />
+</div>
+
 
