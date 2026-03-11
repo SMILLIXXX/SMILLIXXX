@@ -5,14 +5,11 @@
 
 
    My name is Smilli, but you can give me any nickname you wish to...
-   </div>
-
 
 
 ➧ I might be editing characters or offtab at times, so don't hesitate to whisper to me directly so I can see your chat :P
 
 
-<div align="center">
 <img width="640" height="64" alt="image" src="https://github.com/user-attachments/assets/1a70ab52-5104-41f5-962f-014498439716" />
 
 
