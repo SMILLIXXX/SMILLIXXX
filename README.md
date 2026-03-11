@@ -1,5 +1,6 @@
 <div align="center">
-<img width="824" height="18" alt="image" src="https://github.com/user-attachments/assets/c3853998-748d-4276-b560-711ce564e582" />
+   <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/b142bb09-7bd9-42bd-9598-dda71cbc2baf" />
+
 <img width="824" height="18" alt="image" src="https://github.com/user-attachments/assets/c3853998-748d-4276-b560-711ce564e582" />
 
    Hi, hello, welcome!!! This is mostly for Pony Town!
