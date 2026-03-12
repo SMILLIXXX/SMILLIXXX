@@ -4,7 +4,7 @@
 
 
    
-   Hi, hello, welcome!!! This is mostly for Pony Town!
+   Hi, hello, welcome!!! This is mostly for Pony Town! Usually at the roblox area with @FIGURE-009 :3
    
 
    My name is Smilli, but you can give me any nickname you wish to...
