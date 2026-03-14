@@ -12,6 +12,8 @@
 
 I might be editing characters or offtab at times, so don't hesitate to whisper to me directly so I can see your chat :P
 
+You can take inspo from me but please PLEASE don't copy 100% my work (˘･_･˘)!
+
 
 <img width="640" height="64" alt="image" src="https://github.com/user-attachments/assets/1a70ab52-5104-41f5-962f-014498439716" />
 
