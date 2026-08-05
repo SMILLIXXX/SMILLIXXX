@@ -28,9 +28,9 @@ You can take inspo from me but please PLEASE don't copy 100% my work (˘･_･�
 
 • Talk to me about: Subkit, Paycheck, Doublefedora, Azuretime, Sonadow, Toxichero, Partybeetle, Skaterlight, +
 
-• Some of my kins (FOR FUN): Killua (HxH), Tecchou (BSD), Shadow (STH), Medkit (P!), Azure (FS), Sebastian (PRSR), Pest (RGTVR)
+• Some of my kins (FOR FUN): Killua (HxH), Tecchou (BSD), Shadow (STH), Medkit (P!), Azure (FS), Pest (RGTVR)
 
-• Some of my favs: Anaxa (HSR), Yi Xi (SynthV), Shadow (STH), Kurapika (HxH), Griefer (BT), Pest (RGTVR), Subspace (P!) . . .
+• Some of my favs: Azure (FS), Anaxa (HSR), Yi Xi (SynthV), Shadow (STH), Kurapika (HxH), Griefer (BT), Pest (RGTVR), Subspace (P!) . . .
 
 
 <img width="640" height="64" alt="image" src="https://github.com/user-attachments/assets/5a440649-684b-4568-898b-b8e0b28f06a0" />
